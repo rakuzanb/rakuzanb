@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @rakuzanb
-- 👀 I’m interested in watching football matches(I am a big fan of FCB)
+- 👀 I’m interested in learning for new things in IT(coding)
 - 🌱 I’m currently learning programing language python
 - 💞️ I’m looking to collaborate on internship for field of IT
 - 📫 How to reach me. (+996709690907 , rakuzanb23@gmail.com , https://www.instagram.com/rakuzanb/)
